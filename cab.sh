@@ -1,1 +1,1 @@
-life is short
+life is short but enjoy it while it last
